@@ -2,8 +2,8 @@
 
 <p>Kingroyal, güvenilir ve kaliteli bir platformda eğlenceli deneyimler sunuyor. Zengin oyun seçenekleri, avantajlı kampanyalar ve özel fırsatlarla dolu bir dünyaya adım atın. Hızlı ve güvenli erişim avantajıyla kazanmaya başlayın!</p>
 
-<a href="https://shorturl.at/6537i">
-  <img src="https://i.ibb.co/YTyz1hDR/images-5.jpg" alt="images-5" border="0">
+<a href="https://imgbb.com/">
+  <img src="https://i.ibb.co/Q5p8LJL/4563fd642a81cba8d86da84bc15dba1a.jpg" alt="4563fd642a81cba8d86da84bc15dba1a" border="0">
 </a>
 
 <h2>Kingroyal - Kingroyal Giriş - Kingroyal Güncel Adres</h2>
